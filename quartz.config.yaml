@@ -7,7 +7,7 @@ configuration:
   analytics:
     provider: plausible
   locale: en-US
-  baseUrl: peanutmg5711-byte.github.io/FV-database
+  baseUrl: peanutmg5711-byte.github.io/frederick-voltaire-correspondence
   ignorePatterns:
     - private
     - templates
