@@ -42,3 +42,22 @@ Sire vous avez des crampes, et moy aussi. Vous aimez la solitude et moy aussi. V
 De là je conclus que j'étois fait pour vivre et mourir aux pieds de votre majesté.
 
 V.
+
+---
+您这位屈尊向我分发
+神圣缪斯之果实的人啊，
+我的国王，我绝不能容许
+您在甚至不屑告知我一声的情况下，
+便去服用药物。
+我可是您天生的病人，
+而且对于番泻叶和决明子，
+我可有着非同寻常的心得。
+我们干的是同一行当：
+难道您竟需要提防我，
+还要将您的“好运气”（服药）藏着掖着吗？
+
+陛下，您有抽筋的毛病，我也有。您热爱孤独，我也热爱。您创作诗歌与散文，我也创作。您服用药物，我也服用。
+
+由此我断定，我生来就是为了活在并死在陛下的脚下。
+
+V.

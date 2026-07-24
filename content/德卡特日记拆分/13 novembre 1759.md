@@ -3,7 +3,7 @@ id: 261
 date: 1759-11-13
 author: Henri de Catt
 location:
-prev: "[[4 octobre 1759]]"
+prev: "[[1 novembre 1759]]"
 next: "[[19 novembre 1759]]"
 cssclasses: null
 status: "original only"

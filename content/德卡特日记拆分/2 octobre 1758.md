@@ -16,7 +16,7 @@ Il me dit aussi un trait du duc de Würtemberg, père du Prince. Il était malad
   
 »Je vois,« dit D. D., »des difficultés partout. Il faut suspendre son jugement. Si nous sommes libres, Dieu ne sait pas tout ; si nous sommes nécessités, plus de vertus et de vices.« — —  
   
-D’Alembert avait dit au Roi que Voltaire avait fait bien des fautes dans son Newton à la portée.  
+D’Alembert avait dit au Roi que Voltaire avait fait bien des fautes dans son Newton à la portée.  #德卡特日记⭐️
   
 Il avait relu plusieurs fois Œdipe, qu’il avait joué, et s’était presque rappelé tout son rôle. Il trouva que les épîtres de Voltaire sur la morale ne valent pas grand’chose et qu’il n’y a pas de liaison.  
   
@@ -26,4 +26,4 @@ Il avait relu plusieurs fois Œdipe, qu’il avait joué, et s’était presque 
   
 quand on m’enfonce le poignard et qu’on rit : alors oportet ut me vindicem ; si possem, je ferais suspendere Thermarium et Thaumerium.«  
   
-En raisonnant sur la vengeance, je disais que l’esprit du Christianisme était admirable là-dessus. — »Oh,« me dit-il, en s’avançant vers moi et me faisant des compliments, »je vous félicite de ce que vous êtes si fort le maître de vous-même. Cela est beau, cela est grand : mais je voudrais qu’on vous mît à l’épreuve !« Oui, ce Prince est le plus grand, comme le plus aimable, des hommes. Beaucoup de franchise sur lui-même et ses sentiments. Il ne trouve point mauvais qu’on le contredise.
+En raisonnant sur la vengeance, je disais que l’esprit du Christianisme était admirable là-dessus. — »Oh,« me dit-il, en s’avançant vers moi et me faisant des compliments, »je vous félicite de ce que vous êtes si fort le maître de vous-même. Cela est beau, cela est grand : mais je voudrais qu’on vous mît à l’épreuve !« Oui, ce Prince est le plus grand, comme le plus aimable, des hommes. Beaucoup de franchise sur lui-même et ses sentiments. Il ne trouve point mauvais qu’on le contredise. #德卡特日记⭐️

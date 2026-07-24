@@ -4,7 +4,7 @@ date: 1759-10-04
 author: Henri de Catt
 location:
 prev: "[[23 septembre 1759]]"
-next: "[[13 novembre 1759]]"
+next: "[[1 novembre 1759]]"
 cssclasses: null
 status: "original only"
 ---

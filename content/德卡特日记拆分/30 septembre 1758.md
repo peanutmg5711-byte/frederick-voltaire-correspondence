@@ -10,7 +10,7 @@ status: "original only"
 ---
 
 # 30 septembre 1758
-30. Appelé. D. D. était fort fatigué. Il lut la préface sur les Tusculanes. On causa encore sur l’âme. »Qu’est-ce que c’est ? c’est un mot vide de sens.« Il trouve Locke d’une longueur épouvantable. Il s’en tient à l’abrégé. »Si j’avais la mémoire heureuse, j’aurais pu être savant, car j’ai bien lu et ai tâché de mettre de la liaison dans mes lectures ; mais ma mémoire manque quelquefois.«  #⭐️
+30. Appelé. D. D. était fort fatigué. Il lut la préface sur les Tusculanes. On causa encore sur l’âme. »Qu’est-ce que c’est ? c’est un mot vide de sens.« Il trouve Locke d’une longueur épouvantable. Il s’en tient à l’abrégé. »Si j’avais la mémoire heureuse, j’aurais pu être savant, car j’ai bien lu et ai tâché de mettre de la liaison dans mes lectures ; mais ma mémoire manque quelquefois.«  #德卡特日记⭐️
   
 Ce P[rince] peut lire 20 lettres de suite avec beaucoup de rapidité et y faire réponse à chacune, sans être obligé de les relire.  
   

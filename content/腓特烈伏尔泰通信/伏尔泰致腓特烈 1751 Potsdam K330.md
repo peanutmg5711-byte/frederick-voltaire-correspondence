@@ -12,7 +12,7 @@ manuscript holding: National Museum of German Culture [No shelfmark recorded] no
 original link: https://doi.org/10.13051/ee:doc/voltfrVF0960161a1c
 original file:
 cssclasses:
-status: original only
+status: original only,rough tr(ai)
 file:
 ---
 
@@ -32,5 +32,19 @@ Sui-je donc né pour imiter mon Roy?
 Jours fortunez soyez son appanage,
 Luisez pour luy Baux jours que je partage,
 Mauvaises nuits ne soyez que pour moy.
+
+V.
+
+---
+
+这可真合了那句“而我也是”。
+我那英雄健康抱恙，
+竟让我通过同理心而一同受苦！
+
+难道我生来就是为了效仿我的国王吗？
+
+幸运的日子啊，请成为他的专属领地吧；
+美好的时光啊，请为他闪耀，而我愿与之分享；
+至于糟糕的长夜，则请统统留给我一个人罢。
 
 V.
